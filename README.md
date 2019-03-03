@@ -7,3 +7,4 @@ Pack of anime minimalist wallpapers. All images are taken from public sources an
 * xryns01 http://xryns01.deviantart.com/
 * lucifer012 http://lucifer012.deviantart.com/
 * rendracula http://rendracula.deviantart.com/
+* max028 https://www.deviantart.com/max028
